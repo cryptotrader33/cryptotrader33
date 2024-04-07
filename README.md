@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @cryptotrader33
-- 👀 I’m interested in crypto/NFTs, Airdrops & gaming
+- 👀 I’m interested in crypto/NFTs, Airdrops, zksync ecosystem & gaming
 - 🌱 I’m currently learning technical analysis
 - 💞️ I’m looking to collaborate on AI & gaming projects
 - 📫 How to reach me @cryptotrader85 on X @vella4444 on Telegram
