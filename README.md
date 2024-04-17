@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @cryptotrader33
 - 👀 I’m interested in crypto/NFTs, AI, Airdrops, zksync ecosystem
 - 🌱 I’m currently learning technical analysis
-- 💞️ I’m looking to collaborate on AI & gaming projects
+- 💞️ I’m looking to collaborate on AI, crypto & gaming projects
 - 📫 How to reach me @cryptotrader85 on X @vella4444 on Telegram
 - 😄 Pronouns: He
 - ⚡ Fun fact: favorite food to eat is pizza & kebabs 
