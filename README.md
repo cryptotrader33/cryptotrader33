@@ -2,7 +2,7 @@
 - 👀 I’m interested in crypto/NFTs, AI, Airdrops, zksync ecosystem
 - 🌱 I’m currently learning technical analysis
 - 💞️ I’m looking to collaborate on AI, crypto & gaming projects
-- 📫 How to reach me @cryptotrader85 on X @vella4444 on Telegram
+- 📫 How to reach me @cryptotrader85 on X @vella4444 on Telegram email: cryptotrader85421@gmail.com
 - 😄 Pronouns: He
 - ⚡ Fun fact: favorite food to eat is pizza & kebabs 
 
